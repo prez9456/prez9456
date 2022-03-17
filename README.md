@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @prez9456
 - 👀 I’m interested in Software Development and System Security!
-- 🌱 Currently a student at CSU.
 - 💞️ I’m looking to collaborate on any projects! Looking for experience in everything!
 - 📫 How to reach me: andy97@live.com
